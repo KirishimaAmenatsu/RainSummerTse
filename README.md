@@ -7,6 +7,9 @@
 
  
 2007年12月25日-  
-gsmabc,又名雨夏。  
-OIer,喜欢Minecraft,原神，崩坏三，phigros。  
-23.12.09炸柜.
+嗨~这里是雨夏Rain Summer  
+在各种平台都有脚印w   
+23.12.09炸柜TAT,目前家人冷处理  
+无证无糖，但计划开展HRT  
+同类可以认识下awa  
+![Visitor Count](https://profile-counter.glitch.me/gsmabc/count.svg)
